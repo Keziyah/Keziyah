@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi. I'm Keziyah.
 
 <!--
 **Keziyah/Keziyah** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,13 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 👩🏾‍💻 software engineer
+- 🤫 introvert
+- 🏳️‍🌈 queer
+- 🌹 leftist
+- 💃🏾 shuffle dancer
+- 🤦🏾‍♀️ starter of projects that never get finished
+- 🐦 occasional [Twitter](https://twitter.com/KeziyahL) user
+- 🤷🏾‍♀️ please don't follow me, I'm boring
+- 💜 she/her
