@@ -23,4 +23,5 @@ Here are some ideas to get you started:
 - 🤦🏾‍♀️ starter of projects that never get finished
 - 🐦 occasional [Twitter](https://twitter.com/KeziyahL) user
 - 🤷🏾‍♀️ please don't follow me, I'm boring
+- ✊🏾 **Black lives matter, GitHub (and Microsoft) should end their relationship with ICE, and tech employees should unionize**
 - 💜 she/her
