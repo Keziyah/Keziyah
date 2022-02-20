@@ -21,5 +21,5 @@ Here are some ideas to get you started:
 - 💃🏾 shuffle dancer
 - 🤦🏾‍♀️ starter of projects that never get finished
 - ✊🏾 BLM
-- 🏄🏾‍♀️ currently looking for my next adventure (job opportunity). More ![here](https://keziyah.github.io/hire-me.html)
+- 🏄🏾‍♀️ currently looking for my next adventure (job opportunity). More [here](https://keziyah.github.io/hire-me.html)
 - 💜 she/her, they/them
