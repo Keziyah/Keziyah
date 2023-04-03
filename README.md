@@ -17,8 +17,5 @@ Here are some ideas to get you started:
 
 - 👩🏾‍💻 software engineer
 - 🤫 introvert
-- 🏳️‍🌈 queer
 - 💃🏾 shuffle dancer
-- ✊🏾 BLM
-- 🏄🏾‍♀️ currently looking for my next adventure (job opportunity). More [here](https://keziyah.github.io/hire-me.html)
 - 💜 she/her, they/them
